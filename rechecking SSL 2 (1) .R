@@ -1,0 +1,1 @@
+print("Please work . I  feel like I am stuck in water. THis is not the plaxe to insert what you want to don in your life. But people are nice to people we do like .I am killing the keyboard .People are nice and bad  together.. hope we can understand where we made the mistake. ")
